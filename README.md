@@ -1,2 +1,5 @@
 # latXBT-nova
-Code crafted with precision
+Code crafted with precisionfhfcjkgc
+ghfcjfcu
+ghjkfvjf
+
